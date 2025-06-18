@@ -3,7 +3,7 @@
 <b>MIMI 𖹭.ᐟ</b><br/>
   21<br/>
   <b>She/Jewel</b><br/>
-  <b>Fictive</b> of the <b>Comets Tail Collective</b><br/>
+  <b>Fictive</b> in the <b>Comets Tail Collective</b><br/>
 ╰─..★.──────────╯
 </div><br/>
 <div align="center">
